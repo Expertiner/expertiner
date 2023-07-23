@@ -36,6 +36,6 @@
 
 Estudante de Engenharia Elétrica na Escola Politécnica da USP e profissional orientado aos negócios com experiências em tecnologias.
 
-Minhas maiores habilidades são a organização, o emprenho, a comunicação e a produtividade.
+Minhas maiores habilidades são a organização, o empenho, a comunicação e a produtividade.
 
 Procuro, nessa minha trajetória, agregar o máximo de experiências, para contribuir em atividades de diferentes áreas.
