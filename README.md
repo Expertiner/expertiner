@@ -38,4 +38,4 @@ Estudante de Engenharia Elétrica na Escola Politécnica da USP e profissional o
 
 Minhas maiores habilidades são a organização, o empenho, a comunicação e a produtividade.
 
-Procuro, nessa minha trajetória, agregar o máximo de experiências, para contribuir em atividades de diferentes áreas.
+Procuro, nesta minha trajetória, agregar o máximo de experiências, para contribuir em atividades de diferentes áreas.
